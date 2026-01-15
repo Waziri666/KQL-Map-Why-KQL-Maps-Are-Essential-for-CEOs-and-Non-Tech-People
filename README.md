@@ -1,0 +1,1 @@
+# KQL-Map-Why-KQL-Maps-Are-Essential-for-CEOs-and-Non-Tech-People
